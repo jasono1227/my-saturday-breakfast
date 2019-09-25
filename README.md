@@ -9,6 +9,7 @@ Every saturday, I get up extra early to make a steak and cheese omlette for brea
 2. About 1-2 servings
 3. total cost is around $11
 
+
 # ingredients  
 
 First, youll need shredded steak which you can buy at your local supermarket($7.01). Then youll have to get some eggs too!($1.53). Lastly you'll need to get some cheese which you can easily obtain($2.22).
