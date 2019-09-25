@@ -11,5 +11,5 @@ Every saturday, I get up extra early to make a steak and cheese omlette for brea
 
 # ingredients  
 
-First, youll need shredded steak which you can buy at your local supermarket($7.01). Then youll have to get some eggs too!($1.53). Lastly
--------------------------------------------------------------------
+First, youll need shredded steak which you can buy at your local supermarket($7.01). Then youll have to get some eggs too!($1.53). Lastly youll need to get some cheese which you can easily obtain($2.22).
+--
