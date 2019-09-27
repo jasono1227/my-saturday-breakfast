@@ -28,5 +28,7 @@ Enjoy!
 Feel free to change or switch up the way this is cooked to your preference! You can also add ingredients if you want to also!
 -
 
+# Inspired by:
 
+[Delish](https://www.delish.com/cooking/recipe-ideas/recipes/a52313/philly-cheesesteak-omelet-recipe/)
 
